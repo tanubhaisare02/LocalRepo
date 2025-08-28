@@ -26,8 +26,10 @@
  
 🌐 Connect with Me  
 
-🔗 LinkedIn: https://www.linkedin.com/in/tanu-bhaisare-5267b529b/ 
+🔗 LinkedIn: https://www.linkedin.com/in/tanu-bhaisare-5267b529b/
+
 📂 Portfolio: *Coming Soon*  
+
 💬 Let’s connect & build something amazing...! 
 
 
