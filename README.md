@@ -2,9 +2,12 @@
 
  Hello..., I'm Tanu Bhaisare  
 
-🎓 IT Student @ SSISM (ITEG) 
+🎓 IT Student @ SSISM (ITEG)
+
 💻 Java Developer 
+
 🌐 Frontend Enthusiast 
+
 🚀 Future Full-Stack Developer  
 
  🔧 Skills  
